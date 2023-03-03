@@ -4,4 +4,6 @@
  almighty 
  jehovah
  thank you Jesus
+oh yes
+we are getting there
 
